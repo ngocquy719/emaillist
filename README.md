@@ -1,1 +1,10 @@
-# emaillist
+JerryFlynn1994@icloud.com
+EmilioPadilla703@icloud.com
+CrosbyWatkins133@icloud.com
+JefferyGill76846@icloud.com
+JordanPope705980@icloud.com
+NayaWhitney39100@icloud.com
+AlanMoon900525@icloud.com
+FreyjaGardner387@icloud.com
+BrodieBurch27607@icloud.com
+JohnMorrison3847@icloud.com
